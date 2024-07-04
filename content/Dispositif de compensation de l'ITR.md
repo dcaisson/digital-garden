@@ -1,0 +1,11 @@
+- *Réunion d'information UPF du 20 juin 2024*
+- Garantie de 4000€ (bruts, max) et cotisation volontaire en Polynésie française 
+- RAFP retraite additionnelle de la fonction publique pour remplacer l'ITR
+- Cotisation volontaire sur les traitements indiciaires : **pas de précisions à ce jour sur le calcul du montant**
+- 5% pour l'agent, 5% pour l'employeur 
+- **Choix avant le 17 octobre 2024** (avec effet rétroactif jusqu'au 1er avril)
+- Conditions pour toucher les 4000€
+	- Avoir toutes ses annuités (43)
+	- Résidence effective en Polynésie française 
+	- 15 années de service en Polynésie française
+- Cumul possible entre ITR et CVR mais maximum 4000€
